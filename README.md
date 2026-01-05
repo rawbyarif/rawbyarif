@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Hey there! I'm AriF, currently on a journey of figuring things out and discovering where life takes me. I'm not rushing to have all the answers - I'm enjoying the process of exploration.<br><br>What I Love:<br>When I'm not contemplating life's possibilities, you'll find me deep in gaming sessions. I'm drawn to intense, challenging games that test my skills and patience:<br><br>GTA - for the freedom and chaos<br>Resident Evil - because I love a good horror challenge<br>Sekiro & Elden Ring - because I appreciate games that don't hold your hand<br>My Passion:<br>Technology is my thing. I'm fascinated by how things work and dream of creating and building things exactly as I envision them. I'm a maker at heart who wants to bring ideas to life.<br><br>Fun Fact:<br>I have a terrible sense of direction and often get lost! 🗺️😅 But that's okay - getting lost physically doesn't mean I'm lost in life. I know where I want to go, even if the GPS doesn't.<br><br>My Goal:<br>To make things as I want - to have the freedom and skills to create, build, and shape my own reality through technology and creativity.
 
 
